@@ -1,11 +1,11 @@
 Title: A Persistent Mistake In the Advocacy of Gay Rights
 Date: 2015/01/15
 
-Its unfortunate that a movement as important as the gay rights movement still flaunts an argument as bad as the "gay-by-nature" argument.
+It's unfortunate that a movement as important as the gay rights movement still flaunts an argument as bad as the "gay-by-nature" argument.
 
 The appeal of the following proposition is obvious: if gays and lesbians cant help but be gays and lesbians, it would be unjust to use that fact to deny them certain benefits and make them victims of certain punishments.
 
-An obvious way to undermine this reasoning is to ask if a particular disposition always excuses one from legal scrutiny. Clearly the answer is no. We dont grant pedophiles legal impunity nor do we excuse the behaviors of sufferers of personality disorders that make people more likely to commit violent crime. One should not understand the analogies Ive just made to be comparing homosexuality to pedophilia or murder in terms of its moral permissibility. The analogies are onlymeant to show that predisposal to behave a certain way is not reason in and of itself to justify the action.
+An obvious way to undermine this reasoning is to ask if a particular disposition always excuses one from legal scrutiny. Clearly the answer is no. We dont grant pedophiles legal impunity nor do we excuse the behaviors of sufferers of personality disorders that make people more likely to commit violent crime. One should not understand the analogies Ive just made to be comparing homosexuality to pedophilia or murder in terms of its moral permissibility. The analogies are only meant to show that predisposal to behave a certain way is not reason in and of itself to justify the action.
 
 Another weakness of the gay-by-nature argument is the dubious nature of its antecedent clause. Though Im inclined to believe the testimonial (e.g. most gay and lesbians say they feel drawn to the behavior independent of their volition) an correlational evidence (i.e. certain things do seem to be correlated with being gay, like having many older male siblings) available which suggest homosexuality is not a choice, by no means is any of that evidence conclusive. Perhaps the best evidence that homosexuality isnt a choice is the prevalence of same-sex sex across many other species. Even still, one can reject/challenge the clause "gays and lesbians cant help but be gays and lesbians" without committing too great a philosophical faux pas.
 
