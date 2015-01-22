@@ -1,5 +1,6 @@
 Title: Feminists Think They're So Smart
 Date: 2015/01/08
+Category: Feminism
 
 Feminism has one core claim. There are different strands of Feminism, but the core claim captures the common thread between them all, and anything not sharing in this claim is, by definition not, Feminism. This claim represents the necessary and sufficient conditions for Feminism, without further necessitating how any particular feminist need express his/her beliefs. 
 
