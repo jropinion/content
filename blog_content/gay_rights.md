@@ -1,5 +1,6 @@
 Title: A Persistent Mistake In the Advocacy of Gay Rights
 Date: 2015/01/15
+Category: Gay Rights
 
 It's unfortunate that a movement as important as the gay rights movement still flaunts an argument as bad as the "gay-by-nature" argument. But, before I discuss the arguments and its issues, I want to make a few concessions.
 
@@ -17,4 +18,4 @@ A much better approach to advocating gay and lesbian rights is to rely on an arg
 
 The reason why we need to relinquish our animus-fueled, disgusting vendetta against gays and lesbians is because when we use the law to inhibit their expression, we are disrespecting their autonomy and fettering their opportunity at self-actualization - the exact thing our country is meant to promote; this holds true independent of whether or not it is a choice to be gay. Actually, this argument is most compelling when we understand homosexuality as a choice. Unless homosexuality is detrimental to our society, and I'll readily dismantle all arguments that would dare hold that it is, gays and lesbians must be afforded the rights they are promised as citizens and as humans.
 
-P.S. The evidence does seem to suggest that being gay or lesbian is a predisposition, and to that end no one's personal opinion actually matters; people do not choose to be gay. But, as I hope this post shows, when it comes to gay rights, it doesnt really matter. When we fixate on whether or not an action is a choice we ignore the most important questions: is the behavior self-regarding (think Mill's Harm Principle) and is the choice intimately connected to one's right to self-actualize.
+P.S. The evidence does seem to suggest that being gay or lesbian is a predisposition, and to that end no one's personal opinion actually matters; people do not choose to be gay. But, as I hope this post shows, when it comes to gay rights, it doesnt really matter. When we fixate on whether or not an action is a choice we ignore the most important questions: is the behavior self-regarding (think Mill's Harm Principle) and is the choice intimately connected to one's right to self-actualize?
