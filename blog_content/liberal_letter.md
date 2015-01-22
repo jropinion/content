@@ -1,6 +1,6 @@
 Title: A Letter to Liberals
 Date: 2014/12/24
-
+Category: Political Philosophy
 Being a liberal puts a unique burden on a person to be particularly excellent when conveying ideas, exceptionally persistent in promoting those ideas, and painfully patient in waiting for change (not passive but just near immune to frustration).
 
 Why?
