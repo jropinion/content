@@ -31,7 +31,7 @@ I don't put much stock into the idea of New Year's resolutions. I figure, why no
     
     Surely the conduct of the murdered individual is relevant exculpatory evidence. But the evidence matters at trial. So, lets start having trials for cops. At which time they can prove their innocence. But we can't keep assuming the cop acted reasonably and the murdered person deserved to be killed. It's this current way of dealing with these situations which liberates cops to use deadly force more frequently and with less hesitation. One obvious institutional change to decrease the number of unarmed people murdered by cops, a crime disproportionately happening to people of color, is to punish that behavior with more than paid vacations.
 
-5.  ###**Let's remember that were not talking about disembodied statistics; were talking about people.**
+5.  ###**Let's remember that were not talking about disembodied statistics; we're talking about people.**
 
     The breadth of the influence of institutional racism is quite large. These phenomena affect so many people it's easy to forget that at the end of the day we're talking about individual people with lives, families, hopes, fears, and futures. As we go further and further down the rabbithole of statistics, lets not forget that fact. Whether or not you're skeptical of the accounts of racial politics commonly promulgated, people are dying. People are being denied access to promised rights and necessary goods. People are spending their entire lives without hope. This is unacceptable.
 
