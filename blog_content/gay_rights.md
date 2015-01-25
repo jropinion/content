@@ -1,4 +1,4 @@
-Title: A Persistent Mistake In the Advocacy of Gay Rights
+Title: A Persistent Mistake in the Advocacy of Gay Rights
 Date: 2015/01/15
 Category: Gay Rights
 
