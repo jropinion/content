@@ -21,7 +21,7 @@ In the process we also reduce the dignity of individuals. We promote ideas of co
 
 ###**Stereotypes as Blindfolds**
 
-What I take to be the most insidious threat to our society posed by stereotypes is the how stereotypes sheild us from actually understanding how our society works. When we subscribe to the idea that a group is inherently one way, we ignore the social factors that may have been complicit in their plight. 
+What I take to be the most insidious threat to our society posed by stereotypes is how stereotypes shield us from actually understanding how our society works. When we subscribe to the idea that a group is inherently one way, we ignore the social factors that may have been complicit in their plight. 
 
 When we say, for example, that black people are prone to criminality (an idea that a shallow look at incarceration stats and arrest rates would seem to support), we ignore the truth: Black people are policed more harshly than others, leading to higher incidences of arrest, often for crimes that are committed with similar frequncey across the races (e.g. drug possession and use); We ignore that centuries of slavery, segregation, and marginalization from formal economic activity have left many Blacks in poverty with limited prospects to improve their circumstances (a situation conducive to breeding criminality); we ignore that we live in a society that stresses the well-being of the individual over that of the community and thus woud rather jail the masses than invest in practical solutions.
 
