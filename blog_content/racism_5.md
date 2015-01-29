@@ -1,7 +1,7 @@
 Title: 5 Ways to Undercut Racism in 2015
 Date:  2015/01/01
 Category: Race
-I don't put much stock into the idea of New Year's resolutions. I figure, why not change something you don't like as soon as youre sure you dont like it? To me it seems resolutions, in general, are just a way to postpone action; this hypothesis thoroughly supported by the Arab-Israeli conflict, which has seen numerous resolutions, but not much progress. But, I'd be foolish to ignore how seriously our society takes New Year's resolutions. So, in that spirit, here are five ways we can drastically improve our dialogue about race in 2015.</p>
+I don't put much stock into the idea of New Year's resolutions. I figure, why not change something you don't like as soon as you're sure you dont like it? To me it seems resolutions, in general, are just a way to postpone action; this hypothesis thoroughly supported by the Arab-Israeli conflict, which has seen numerous resolutions, but not much progress. But, I'd be foolish to ignore how seriously our society takes New Year's resolutions. So, in that spirit, here are five ways we can drastically improve our dialogue about race in 2015.</p>
 
 1.  ### **Let's stop making this struggle all about Black men.**
 
