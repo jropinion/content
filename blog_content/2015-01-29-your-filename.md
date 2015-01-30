@@ -5,7 +5,7 @@ When I suggested in my About Me that I wanted this blog to be a learning experie
  
 I will accept or reject posts on their logical merit and integrity. I am willing to post things I disagree with. This blog is meant to promote the spread of ideas. I'm confident some of you have incredible thoughts. I'd love to share them.
  
-Getting involved is simple. Type your piece and email it to me at juannellriley@gmail.com. The opportunity will be open for the Month of February. The best submissions will be featured in March.
+Getting involved is simple. Type your piece and email it to me at juannellriley@gmail.com. The opportunity will be open for the month of February. The best submissions will be featured in March.
  
 Looking forward to some great submissions.
  
