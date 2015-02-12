@@ -20,6 +20,6 @@ Imagine you are wearing very expensive sneakers or jewelry. You take pride in th
 
 It doesn’t matter how this story ends. You were harassed. You perhaps felt reasonable fear. Maybe you’re harasser didn’t mean to do so, but that doesn’t mean it didn’t happen.
 
-One might suggest that you’d be better served not wearing or flaunting that item in places like that. To that suggestion I have three questions. What do you do when you can’t take off the item? What do you do when places like that are everywhere and you can’t avoid them and simultaneously efficiently move between places you need to be? And lastly, even if you could overcome the first two problems, do we really want to live in a world where you have to?
+One might suggest you’d be better served not wearing or flaunting that item in places like that. To that suggestion I have three questions. What do you do when you can’t take off the item? What do you do when places like that are everywhere and you can’t avoid them and simultaneously efficiently move between places you need to be? And lastly, even if you could overcome the first two problems, do we really want to live in a world where you have to?
 
 P.S. Harassers...Shut the fuck up!
