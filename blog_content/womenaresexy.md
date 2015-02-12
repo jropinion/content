@@ -1,7 +1,6 @@
 Title: Women Are Sexy
 Category: Feminism
 Date: 2015/2/12
-
 Street harassment is slowly taking its place in the category of identified demeaning practices we’d be better without. Unfortunately, catcalling persists. One of the primary reasons is that some people can’t understand why they shouldn’t do it. They see that some women don’t like it, but to them that’s not justification enough to stop.
 
 That’s odd. If catcalling is ultimately a seduction tactic or mechanism of flattery, which any reasonable proponent of catcalling would have to hold (otherwise they’d be acknowledging it’s harassment and insisting that it was acceptable anyway), then it would seem the proportion of women displeased with it would be enough to kill the practice altogether since the chances for success would be so low. But, there’s also reason to believe this increases how often it happens as men look to increase their opportunities as much as possible to increase the chance of success.
