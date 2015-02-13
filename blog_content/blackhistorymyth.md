@@ -2,7 +2,7 @@ Title: The Black History Myth
 Category: Race
 Date: 2015/2/5
 
-It’s obvious why black history month exists. It’s not an insidious plan by the powers that be to limit the study of black culture and the historical impact of black people to one month. It’s a deliberate effort to set time aside to recognize black individuals whose stories have been demeaned, marginalized, and ignored; it’s an attempt to give attention to alternate narratives and highlight overlooked details. A beautiful goal. And yet, I couldn’t hate black history month more.
+It is obvious why black history month exists. It’s not an insidious plan by the powers that be to limit the study of black culture and the historical impact of black people to one month. It’s a deliberate effort to set time aside to recognize black individuals whose stories have been demeaned, marginalized, and ignored; it’s an attempt to give attention to alternate narratives and highlight overlooked details. A beautiful goal. And yet, I couldn’t hate black history month more.
 
 Make no mistake about it, I love learning about the achievements of men and women who share my melanin concentration. It’s a wonderful reminder that despite societies covert message about the limits placed on me by my blackness, I can affect the world, what I do does matter, and when I’m gone someone may care.
 
