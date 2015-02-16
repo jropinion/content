@@ -1,7 +1,7 @@
 Title: 5 Ways to Undercut Racism in 2015
 Date:  2015/01/01
 Category: Race
-I don't put much stock into the idea of New Year's resolutions. I figure, why not change something you don't like as soon as you're sure you dont like it? To me it seems resolutions, in general, are just a way to postpone action; this hypothesis thoroughly supported by the Arab-Israeli conflict, which has seen numerous resolutions, but not much progress. But, I'd be foolish to ignore how seriously our society takes New Year's resolutions. So, in that spirit, here are five ways we can drastically improve our dialogue about race in 2015.</p>
+I don't put much stock into the idea of New Year's resolutions. I figure, why not change something you don't like as soon as you're sure you don't like it? To me it seems resolutions, in general, are just a way to postpone action; this hypothesis thoroughly supported by the Arab-Israeli conflict, which has seen numerous resolutions, but not much progress. But, I'd be foolish to ignore how seriously our society takes New Year's resolutions. So, in that spirit, here are five ways we can drastically improve our dialogue about race in 2015.</p>
 
 1.  ### **Let's stop making this struggle all about Black men.**
 
@@ -11,11 +11,11 @@ I don't put much stock into the idea of New Year's resolutions. I figure, why no
 
 2.  ###**Let's stop making the good cop bad cop distinction and acting as if the race of the cop is relevant.**
 
-    It is inconsequential to focus on the race of the cop. Whether it be a White cop, a Hispanic cop, or a Black cop, the important thing to consider about the situation is how the situation is informed by the historical treatment of blacks in this country juxtaposed, of course, with the drastically different, one might say privileged, white experience. The issue at hand is the relationship of authority to black bodies.
+    It is inconsequential to focus on the race of the cop. Whether it be a White cop, a Hispanic cop, or a Black cop, the important thing to consider about the situation is how it is informed by the historical treatment of blacks in this country juxtaposed, of course, with the drastically different, one might say privileged, white experience. The issue at hand is the relationship of authority to black bodies.
    
     Hopefully this also helps explain why phrasing the situation in terms of bad cops is ill-advised. If the real problem is systemic discrimination and oppression, isolating each episode of police aggression as the actions of one deranged man with a badge undermines any attempt to establish correlations and identify patterns; things very necessary to show the institutional nature of the problem, and the likewise institutional nature a solution will have to have.
    
-    Think about it this way: good cops do their job according to procedure. Stop and Frisk is a legal procedure which is purposefully used disproportionately against people of color (indeed, former Mayor Michael Bloomberg wanted more black people stopped and frisked, as 80% of the stops being comprised of 90% innocent black people, wasn't enough). Therefore, one might say that good cops disproportionately stop and frisk people of color, a somewhat paradoxical proposition.
+    Think about it this way: good cops do their job according to procedure. Stop and Frisk is a legal procedure which is purposefully used disproportionately against people of color (indeed, former Mayor of New York City, Michael Bloomberg, wanted more black people stopped and frisked, as 80% of the stops being comprised of 90% innocent black people, wasn't enough). Therefore, one might say that good cops disproportionately stop and frisk people of color, a somewhat paradoxical proposition.
     
     The laws and procedures are unjust. It doesn't matter if a cop is a nice guy who is himself not racist, he has signed up to carry out laws that function to intimidate, marginalize, and oppress people. He may not be a bad person, but he is employed in an institution that carries out the will of a racist, corrupt society.
 
@@ -29,7 +29,7 @@ I don't put much stock into the idea of New Year's resolutions. I figure, why no
 
     The character of the murdered individual is routinely on trial when courts and juries are attempting to decide what kind of legal repercussions are to be levied against cops and other governmental actors that carry out injustices on people of color. But my understanding of our judicial system is that we assume individuals are innocent until they are proven guilty. If that is the case, then a murdered individual should be assumed to be wrongly killed unless the officer can prove he was acting reasonably. 
     
-    Surely the conduct of the murdered individual is relevant exculpatory evidence. But the evidence matters at trial. So, let's start having trials for cops. At which time they can prove their innocence. But we can't keep assuming the cop acted reasonably and the murdered person deserved to be killed. It's this current way of dealing with these situations which liberates cops to use deadly force more frequently and with less hesitation. One obvious institutional change to decrease the number of unarmed people murdered by cops, a crime disproportionately happening to people of color, is to punish that behavior with more than paid vacations.
+    Surely the conduct of the murdered individual is relevant exculpatory evidence. But the evidence matters at trial. So, let's start having trials for cops, at which time they can prove their innocence. But we can't keep assuming the cop acted reasonably and the murdered person deserved to be killed. It's this current way of dealing with these situations which liberates cops to use deadly force more frequently and with less hesitation. One obvious institutional change to decrease the number of unarmed people murdered by cops, a crime disproportionately happening to people of color, is to punish that behavior with more than paid vacations.
 
 5.  ###**Let's remember that we're not talking about disembodied statistics; we're talking about people.**
 
