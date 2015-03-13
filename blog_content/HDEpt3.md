@@ -2,7 +2,7 @@ Title: Human Dignity Explained Part 3: A Dignified Existence
 Category: Political Philosophy
 Date: 2015/3/12
 
-I concluded the last post by suggesting that adhering to a reasonable existence was enough to convince the masses to consider the dignity of others. But, I’m not sure that’s true.
+I concluded the last post by suggesting that the supposed necessity of adhering to a reasonable existence was enough to convince the masses to consider the dignity of others. But, I’m not sure that’s true.
 
 Some people, unconvinced by my appeal to morality and further unmoved by the idea of a reasonable existence may stand fast in their opposition to “social justice.” They may say: “If people won’t follow the laws and go with the social mores that have made me wealthy and powerful, then we can just remove them from society.” This may seem controversial but consider the size of the United States prison population, and more importantly, consider it’s composition. Despite most the population being White, most of the prison population is not. This suggests, perhaps, that people have in large part adopted this kind of thinking: removing unruly segments of the population from society, forgoing finding solutions to their criminality in favor of quarantining the “bad people.”
 
