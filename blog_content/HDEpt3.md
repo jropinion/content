@@ -1,4 +1,6 @@
-Title: Human Dignity Explained Part 3: A Dignified Existence Category: Political Philosophy Date: 2015/3/12
+Title: Human Dignity Explained Part 3: A Dignified Existence
+Category: Political Philosophy
+Date: 2015/03/12
 
 I concluded the last post by suggesting that the supposed necessity of adhering to a reasonable existence was enough to convince the masses to consider the dignity of others. But, I’m not sure that’s true.
 
