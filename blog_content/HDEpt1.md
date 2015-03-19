@@ -1,6 +1,6 @@
 Title: Human Dignity Explained Part 1: A Moral Existence
 Category: Political Philosophy
-Date: 2015/2/26
+Date: 2015/02/26
 
 Perhaps you’ve noticed by now all my arguments are somehow anchored by a conception of human dignity. You may have also noticed that to this point I’ve only ambiguously explained just exactly what I mean by human dignity. And, though my reasoning may be to your liking, without a clear definition of that term and a strong justification for why my conception of human dignity should be endorsed, all my arguments are hopelessly vulnerable.
 
