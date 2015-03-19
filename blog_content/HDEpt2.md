@@ -1,6 +1,6 @@
 Title: Human Dignity Explained Part 2: A Reasonable Existence
 Category: Political Philosophy
-Date: 2015/3/5
+Date: 2015/03/05
 
 So, I’ve now explained the ins and outs of what I take to be an understandable system of morality. But I also acknowledged that morality is a choice. Sure, the warm fuzzy feeling morality may provide to some may be enough of a reward in and of itself to motivate some to undertake what I called a moral existence. 
 
