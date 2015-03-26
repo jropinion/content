@@ -1,6 +1,6 @@
 Title: What Can Men Earn From Feminism?
 Category: Feminism
-Date: 2015/03/27
+Date: 2015/03/26
 
 I am a man and I am a feminist. Seems weird, I know. If feminism is the doctrine of man-hate, my subscription to it might appear to be a red-flag; a signal that I hate myself and those like me. But I don’t hate myself. I’m a feminist because I love women. Not just my mom, sister, girlfriend, and grandma. I love my female friends, too. In fact, I didn’t really understand my role in the feminist cause, or what the feminist cause had to offer me until a very smart friend explained to me the value feminism has for men.
 
