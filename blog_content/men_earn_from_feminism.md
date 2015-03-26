@@ -1,4 +1,4 @@
-Title: What Can Man Earn From Feminism?
+Title: What Can Men Earn From Feminism?
 Category: Feminism
 Date: 2015/03/27
 
