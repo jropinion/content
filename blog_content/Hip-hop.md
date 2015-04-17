@@ -27,7 +27,7 @@ But let’s assume the argument is true. It still doesn’t explain the dispropo
 
 Why?
 
-BECAUSE WHITE PEOPLE LISTEN TO HIP-HIP!!!!!!!
+BECAUSE WHITE PEOPLE LISTEN TO HIP-HOP!!!!!!!
 
 I have many white friends from all different socioeconomic classes and geographic regions who listen to rap and hip-hop. Yet none of them find themselves in a position with authorities where they may lose their lives often. Why the difference? Are they smarter and thus know how to appreciate the music as just music, something a black person is incapable of doing? Are they just naturally more civil and able to better resist hip-hop’s poisonous influence? Maybe they wear the perfect cops-don’t-kill-me outfits. The only variable that seems different to me is that they are white.
 
