@@ -6,11 +6,11 @@ It has become almost inescapable; the desire to somehow blame blacks for the inc
 
 The argument goes something like this: hip-hop music both glorifies crime and inspires disrespect and contempt for law enforcement. Music/media influences our actions greatly. As a result, hip-hop music creates criminals. This leads to more interactions with cops. These interactions tend to be more hostile because hip-hop engenders a disrespect for cops. This leads to more resistance and aggression forcing law enforcement officers to defend themselves; often leading to increased instances of justified assault and occasional necessary murders.
 
-I think this is a fair construction of the argument. And, there is a problem with perhaps every sentence of it.
+I think this is a fair construction of the argument. And, there is a problem with perhaps every sentence ofit.
 
-###Hip-hop music glorifies crime and inspires disrespect and contempt for law enforcement
+###Hip-hop music glorifies crime and inspires contempt for law enforcement
 
-This idea is a mistake. Sure, some hip-hop music discusses crime and some hip-hop music expresses anti-law enforcement sentiments, but to group all of hip-hop into that category is completely unfair. That would be like reducing all country music to just those songs which praise outlaws like Jessie James, a notorious gang leader and criminal, or that treat women like sexual objects or prizes to be won. Surely the genre of country music is richer than just those songs, and the same is true of hip-hop. Furthermore, I imagine those who would promulgate this argument don’t listen to hip-hop and thus are probably not experts on its content. That might at least suggest that one should be a tad bit more hesitant when excusing the murders of unarmed individuals by agents of law enforcement given their limited understanding, right?
+This idea is a mistake. Sure, some hip-hop music discusses crime and some hip-hop music expresses anti-law enforcement sentiments, but to group all of hip-hop into that category is completely unfair. That would be like reducing all country music to just those songs which praise outlaws like Jessie James, a notorious gang leader and criminal, or that treat women like sexual objects or prizes to be won. Surely the genre of country music is richer than just those songs, and the same is true of hip-hop. Furthermore, I imagine those who would promulgate this argument don’t listen to hip-hop and thus are probably not experts on its content.That might at least suggest that one should be a tad bit more hesitant when excusing the murders of unarmedindividuals by agents of law enforcement given their limited understanding, right?
 
 ###Music/media influences our actions greatly. As a result, hip-hop music creates criminals
 
