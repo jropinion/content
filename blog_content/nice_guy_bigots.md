@@ -1,6 +1,6 @@
 Title: Bigots Can Be Nice People
 Category: Social Justice
-Date: 2015/05/29
+Date: 2015/05/28
 
 Let's start by addressing what bigotry is. A lot of people immediately go to the ultra-restricted definition of bigotry which suggest that malice must be involved for something to be bigoted. That definition was functional in past eras because the law allowed every instance of racism, sexism and homophobia to also be accompanied by malice; prejudice and animous were near indistinguishable. But today's laws protect those lower on the social hierarchy from outright battery and persecution by those higher up (at least they are intended to). As a result, malice is no longer a predictable part of bigotry. This separation between ill will and bigoted sentiments is what has enabled racism, sexism, homophobia and other forms of bigotry to disguise themselves as other things—e.g. concern, fear, suspicion, indifference, adherence to market values, and other deceptive forms. When one removes the malice component from the definition of bigotry, you're left with something that resembles: bigotry is the conscious, latent, or tacit belief that a person's race, sex, sexual orientation, gender, etc. is a marker of deficiencies in character, ability, or intelligence that lead to the person being of less intrinsic value and, perhaps dangerous, untrustworthy, expendable, or unfitting of fair treatment and full dignity.
 
