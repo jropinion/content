@@ -1,4 +1,4 @@
-Title: A Flower Analogy for #BlackLivesMatter
+Title: A Flower Analogy For #BlackLivesMatter
 Category: Race
 Date: 2015/06/11
 
