@@ -14,7 +14,7 @@ When he arrived, he couldn’t help but notice the red rose garden looked slight
 
 The white rose garden, on the other hand, with the help of the red rose seeds and the new soil and equipment, flourished. Soon, the white rose gardener was growing beautiful white roses. Eventually, the white rose gardener had a son. As the son aged, he couldn’t help but notice that his dad did not care for the red roses adequately. His dad didn’t water the red roses sufficiently; his dad only planted red roses in dry, untilled soil; and his dad seemed to care for the white roses more, often spending hours grooming the white roses so they looked perfect.
 
-The son, worried for the red roses, brought all the oversights to his dad’s attention. His dad, somewhat embarrassed quickly conjured a bunch of stories. “You see son,” began the white rose gardener, “red roses aren’t as good as white roses. Not only do they not look as pretty, they are also harder to maintain. When you mix them in with the white roses they drink all the water, and worse yet, make pink roses, which are an abomination. Son, the only way to make sure the white roses stay perfect and this garden stays healthy is to keep the red roses weak and separate.”
+The son, worried for the red roses, brought all the oversights to his dad’s attention. His dad, somewhat embarrassed, quickly conjured a bunch of stories. “You see son,” began the white rose gardener, “red roses aren’t as good as white roses. Not only do they not look as pretty, they are also harder to maintain. When you mix them in with the white roses they drink all the water, and worse yet, make pink roses, which are an abomination. Son, the only way to make sure the white roses stay perfect and this garden stays healthy is to keep the red roses weak and separate.”
 
 The son, hearing these stories, developed contempt for the red roses. He hated the threat they represented to the white roses and he vowed he would never let the garden his father worked so hard to build, be overrun by the terrible heathen plants. 
 
@@ -38,7 +38,7 @@ The white roses, on the other hand, thrived. Their soil was so rich in nutrients
 
 As his father before him, the gardener had a son. Because the gardener was still young, he let his son go off to school to learn botany, hoping the information learned at university would allow his son to take the garden to new heights.
 
-His son returned from school very excited. The first thing he did when he got back from school is tell his dad that he knew how to fix the red rose population.
+His son returned from school very excited. The first thing he did when he got back from school was tell his dad that he knew how to fix the red rose population.
 
 “Dad, the red roses need water.”
 
