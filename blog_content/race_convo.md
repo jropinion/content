@@ -26,7 +26,7 @@ B: “Okay fine, so what would you have us do?”
 
 C: “Yea, it’s easy to complain, what solutions do you propose?”
 
-J: “I think the demonstrations are find, but just talking about it or raising awareness will not do anything. I guess I disagree with the demonstration because I just don’t see the value ultimately. It seems like just making a scene for no reason. There really is no need to just sit around and talk. What is there to do?”
+J: “I think the demonstrations are fine, but just talking about it or raising awareness will not do anything. I guess I disagree with the demonstration because I just don’t see the value ultimately. It seems like just making a scene for no reason. There really is no need to just sit around and talk. What is there to do?”
 
 S: “Well, wait. Just because Juannell might not be able to readily suggest solutions doesn’t mean the problems aren’t real. It seems you guys are inquiring about solutions as a way to disqualify very real grievances, and that’s not fair.”
 
