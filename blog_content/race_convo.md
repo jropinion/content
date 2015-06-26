@@ -1,4 +1,4 @@
-Title: A Conversation about Race
+Title: A Conversation About Race
 Category: Race
 Date: 2015/06/25
 
