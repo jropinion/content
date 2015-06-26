@@ -56,5 +56,5 @@ Me: “I’m not sure what’s happening in France, I’ll admit that. But with 
 
 Professor: “Guys, I just think of the black community in this country, living under constant occupation. The thought that at anytime they can be made vulnerable to authorities for no reason other than their race does not sit well with me. It is, to me, a fairly obvious indicator that there is a race problem in this country.”
 
-P.S. Independent of what you did or didn’t take away from this shared conversation, there is always an important question left...why are conversations like this one worth having? What is there to gain by having these conversation. J brought up this concern in the conversation and the flow of the conversation did not address it sufficiently. Next week, I’ll be writing a pointed criticism of one of the most important concepts in social justice initiatives: deliberative theory.
+P.S. Independent of what you did or didn’t take away from this shared conversation, there is always an important question left...why are conversations like this one worth having? What is there to gain? J brought up this concern in the conversation and the flow of the conversation did not address it sufficiently. Next week, I’ll be writing a pointed criticism of one of the most important concepts in social justice initiatives: deliberative theory.
 
