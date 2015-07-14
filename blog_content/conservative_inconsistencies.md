@@ -23,7 +23,7 @@ White people riot all the time. Usually for nothing. They riot over sports event
 
 ###**Free Speech**
 
-When a white news personality or celebrity or some other entity says something racially insensitive, conservatives are quick to trumpet free speech. They insist that our country was founded on the ability of all individuals to spread ideas even if the masses find them disagreeable. When social commentators attempt to explain systemic racism, conservatives demand their silence. They claim they are poisoning our society and keeping racism alive by talking about it. So much for the free spread of ideas.
+When a white news personality or celebrity or some other entity says something racially insensitive, conservatives are quick to trumpet free speech. They insist that our country was founded on the ability of all individuals to spread ideas even if the masses find them disagreeable. When social commentators attempt to explain systemic racism, conservatives demand their silence. They claim they are poisoning our society and keeping racism alive by talking about it. The same is true with respect to a lot of conversatives attitudes about hip-hop which should, they say, be done away with because of it's poisonous messages. Conservatives also insist that LGBTQ personalities not be promoted on TV so they can avoid a tough conversation with their children. So much for the free spread of ideas.
 
 ###**Reverse Racism**
 
