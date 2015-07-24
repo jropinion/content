@@ -18,7 +18,7 @@ This is why the second clause is equally as misinformed. The hostility often pre
 
 The biggest problem with this truly pathetic reasoning exists in the last clause. If the goal is ultimately a decrease in blacks being assaulted and murdered by police, why would you not focus on the party doing the assaulting and murdering? Asking blacks to be compliant is like making your primary advice to rape victims that they not struggle so their attacker doesn't kill them. It might be true, but your focus is in the wrong fucking place. 
 
-This clause further upsets me because animoisty disquised as concern. People who make the compliance argument are seldom concerned with the well being of blacks. They are often more interested in attempting to justify and excuse the murderer's behavior so we as a nation don’t have to deal with the dissonance between our implied acknowledgement that black lives matter (because black lives do fit into all lives, right?) and our disgusting treatment of black people that suggests we don’t really believe that.
+This clause further upsets me because it is animosity disguised as concern. People who make the compliance argument are seldom concerned with the well being of blacks. They are often more interested in attempting to justify and excuse the murderer's behavior so we as a nation don’t have to deal with the dissonance between our implied acknowledgement that black lives matter (because black lives do fit into all lives, right?) and our disgusting treatment of black people that suggests we don’t really believe that.
 
 The compliance argument is just an extension of white America looking the other way while black people are victimized, devalued, and killed.
 
