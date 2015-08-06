@@ -1,8 +1,8 @@
 Title: A Persistent Mistake in the Advocacy of Gay Rights
 Date: 2015/01/15
-Category: Gay Rights
+Category: LGBTQ Rights
 
-It's unfortunate that a movement as important as the gay rights movement still flaunts an argument as bad as the "gay-by-nature" argument. But, before I discuss the arguments and its issues, I want to make a few concessions.
+It's unfortunate that a movement as important as the LGBTQ rights movement still flaunts an argument as bad as the "gay-by-nature" argument. But, before I discuss the arguments and its issues, I want to make a few concessions.
 
 The argument is very powerful in private lives and amongst families. If this argument can enable people to reconcile their other philosophical commitments (e.g. religion) with a child or loved one's homosexuality or helps a gay person come to accept their own homosexuality, then surely it is worth keeping around. My quarrel with this argument is exclusively related to the advoacy of gay rights and how it undermines the cause in that arena.
 
