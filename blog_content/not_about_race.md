@@ -29,6 +29,3 @@ There has never been a consistent, deliberate, and effective movement in America
 The totality of all I have discussed here is this, to be a black person in America is to live an inherently political existence. There is no time when it is not about race because race predicates their existence in and navigation of this country. Moreover, it is unsurprising that so many white people fail to see race in the everyday workings of society. That is indeed one of the privileges handed to whites by the whites in power during slavery. “By all means,” said the slaver, “don’t worry about race. Look the other way. Pay no attention to the degradation, humiliation, and abuse of your fellow humans.”
 
 P.S. I’m not sure what it would look like to undertake the task of undoing the fiction. I imagine it might start with acknowledging that black lives matter.
-# A New Post
-
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
