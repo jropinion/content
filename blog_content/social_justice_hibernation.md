@@ -1,8 +1,8 @@
-Title: Polarizing Events
+Title: Social Justice Hibernation
 Category: Social Justice
 Date: 2015/09/03
 
-The social justice fight is not a some-of-the-time fight. And yet advocacy for particular issues is strongly correlated with polarizing events. People care so much about racism after an unarmed black person is killed or after a famous person says something racist. But, as the news coverage of those particular events subsides, so does the outrage; so does the concern and empathy.
+The social justice fight should not be a some-of-the-time fight. And yet advocacy for particular issues is strongly correlated with polarizing events. People care so much about racism after an unarmed black person is killed or after a famous person says something racist. But, as the news coverage of those particular events subsides, so does the outrage; so does the concern and empathy.
 
 Perhaps sustained, organized efforts were easier in the past because social maladies like slavery, segregation, unequal voting privileges, and underwhelming legal protection for certain groups were ubiquitous and easily identifiable. In earlier years there was no question that blacks were oppressed, that gay people were persecuted, and that women were marginalized. But, as the mechanisms of oppression, persecution, and marginalization have become more subtle, it seems the imperative to act has been jeopardized.
 
