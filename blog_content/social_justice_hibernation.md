@@ -8,7 +8,7 @@ Perhaps sustained, organized efforts were easier in the past because social mala
 
 In “All Quiet on the LGBTQ Front”, I talked about the need to not be pacified by victories, no matter how substantial, because of how much work there remains to be done. It is equally important that we not let the deceptiveness of oppression in the modern day relax our desire to see true justice prevail.
 
-Of course, there are a multitude of excuses people have to explain their marginal fickle passion for social justice. Of those reasons, three are particularly common. Of those three, none are sufficient to justify the inconsistent attention these important issues receive form all but the most dedicated of social justice advocates.
+Of course, there are a multitude of excuses people have to explain their marginal, fickle passion for social justice. Of those reasons, three are particularly common. Of those three, none are sufficient to justify the inconsistent attention these important issues receive form all but the most dedicated of social justice advocates.
 
 ###**Understanding these issues is difficult.**
 
