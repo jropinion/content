@@ -14,7 +14,7 @@ Of course, there are a multitude of excuses people have to explain their margina
 
 This is a simple concern. And, as such, it requires a simple solution. Go out and learn about them. Read blogs, political theory, articles; watch videos. Many really smart people have dedicated their lives to explaining the most complex social mechanisms of oppression (unfortunately many other smart people have dedicated their lives to denying them). These explanations and analyses are easy to find. Just as easy as finding streaming links for your favorite tv show you watch illegally on your computer. These issues are important enough that you owe it to your fellow human to go and look!
 
-###**The polarizing event (the police murder, the racist comment, the discriminatory policy) is the thing worth focusing on.**
+###**The polarizing event (the police murder, the racist comment, the discriminatory policy) is the only thing worth focusing on.**
 
 This is a common mantra amongst those people who still deny the institutional, structural nature of racism and other forms of bigotry. These individuals see isolated incidences of injustice and look to provide justice in those particular instances. When a cop kills and unarmed black person, for example, this person worries primarily about the punishment the cop recieves the and efforts made on behalf of the State to rectify the loss suffered by the family, to the extent that is possible.
 
