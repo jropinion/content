@@ -28,9 +28,7 @@ But, the moment black people call out specific instances of interpersonal racism
 
 I’m going to stop because this could go on forever. My point is this: it’s easy to see each of these demands that society places on black people as reasonable. But when you start to actually compile all the ways black people are expected to shape their conduct and speech when they talk about race, you quickly realize that the aggregate of these requirements makes it literally impossible to discuss race/racism or effect change. This problem is greatly exacerbated by the fact that only oppressed groups are asked to make these concessions. Violence is fine if we’re forwarding white interests (stand your ground, anyone?), convictions is fine and sternness of tone are fine when we’re forwarding white interests. Sociological explanations are fine when we’re chastising the poor and black people; personal responsibility is appropriate when justifying imprisoning young black casual drug-users. But when any of these strategies or modes of thinking are used to combat racism, suddenly they are inappropriate. If black people actually gave in to the systems demands they’re only option would be to forego combating racism altogether. There can be no choice where there is only one option. Please keep these things in mind as you observe and comment on the situations receiving attention at Mizzou and other schools. I say "receiving attention" instead of happening, because these events are happening accross the country. 
 
-I understand that not every Conservative adheres to every position herein expressed. But as a society these messages are constantly projected at black people. Don’t believe me? Just ask one.
-
-P.S. Don Lemon doesn’t count.
+P.S. I understand that not every Conservative adheres to every position herein expressed. But our society constantly projects these messages at black people. Don’t believe me? Just ask a random sampling of black people. 4 out of 5 will likely answer in the affirmative. The other is named Don Lemon (check last weeks post if you don't get the joke).
 
 
 
