@@ -2,7 +2,7 @@ Title: Social Justice Shadowboxing
 Category: Social Justice
 Date: 2015/12/10
 
-My worse fears are coming true. When I wrote “Oppression Is Not Subjective”, my number one fear was that people advocating for a more equitable society through sentimental pandering and subjective characterizations of oppression would eventually go too far; that at some point the correlation between negative emotions and oppression would be conflated to the point where historical victims of oppression would come to understand every instance of hurt feelings as instances of oppression. I believe that day is upon us.
+My worst fears are coming true. When I wrote “Oppression Is Not Subjective”, my number one fear was that people advocating for a more equitable society through sentimental pandering and subjective characterizations of oppression would eventually go too far; that at some point the correlation between negative emotions and oppression would be conflated to the point where historical victims of oppression would come to understand every instance of hurt feelings as instances of oppression. I believe that day is upon us.
 
 All over the internet there are videos, articles, and posts, all of which amount to little more than: my feelings are hurt so I must be being oppressed. This is the exact kind of thinking which threatens to derail any hopes of continuing to move our society toward a more equitable distribution of economic, social, and political resources. Feeling oppressed can never be enough to prove one is oppressed. A point that I think is especially obvious considering one could certainly be oppressed, not know or it or not recognize it, and thus not feel negatively about it. Oppression and negative emotions are not the same thing.
 
