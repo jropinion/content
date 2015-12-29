@@ -10,7 +10,7 @@ And why might we need some cathartic relief?
 
 Well, people who look like me keep being killed, and people who don’t look like me continue to not care. Worse yet, people who don’t look like me tell me I care too much. They say that I allow myself to be distracted; that my obsession with justice is a destructive hobby. They tell me if I cared less the problems of this nation would cease to exist, and I believe them because the not caring strategy seems to be working perfectly fine for them.
 
-Perhaps it is my fault for being so naive as to believe that the same individuals who told me progress had already come should be trusted now when they tell me that progress is on it’s way. I know that claim to be bullshit now! 
+Perhaps it is my fault for being so naive as to believe that the same individuals who told me progress had already come should be trusted now when they tell me that progress is on its way. I know that claim to be bullshit now! 
 
 The proliferation of videos of cops killing, mistreating, and harassing people who look like me initially filled me with deep sadness and anxiety. BUt perpetually watching killers walk free...those emotions are subsiding and quickly being replaced by rage. And, scary enough, it is not a pointed rage. It is just pure and intense.
 
