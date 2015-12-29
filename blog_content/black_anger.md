@@ -12,7 +12,7 @@ Well, people who look like me keep being killed, and people who don’t look lik
 
 Perhaps it is my fault for being so naive as to believe that the same individuals who told me progress had already come should be trusted now when they tell me that progress is on it’s way. I know that claim to be bullshit now! 
 
-The proliferation of videos of cops killing, mistreating, and harassing people who look like me initially filled me with deep sadness and anxiety. But those emotions are subsiding and quickly being replaced by rage. And, scary enough, it is not a pointed rage. It is just pure and intense.
+The proliferation of videos of cops killing, mistreating, and harassing people who look like me initially filled me with deep sadness and anxiety. BUt perpetually watching killers walk free...those emotions are subsiding and quickly being replaced by rage. And, scary enough, it is not a pointed rage. It is just pure and intense.
 
 But still, I cannot bring myself to subscribe to militancy nor can I endorse it in others. It is certainly true that our society will not change itself, but I fear the kind of change militancy produces. We can not scare people into recognizing our humanity. They are scared now; deluded by centuries or myths about our strength, moral integrity, and intelligence. And their fear only results in our deaths. We needn’t provide any excuses for full scale genocide. The civil war ended slavery, but the racism which sustained the institution lived. Racism cannot be defeated by violence. Changing the hearts of women and men, unfortunately, is a slow arduous process.That is not my way of saying be patient. It’s my way of saying be smart.
 
@@ -36,4 +36,4 @@ Well...can you? Can you tell that sometimes my hands tremble when I write? Can y
 
 Do you care?
 
-P.S. If rioting ensues because of the murder of Samuel Dubose...I will not condemn it. I understand the pain that leads to property destruction. I feel it, too!
+P.S. If rioting ensues because of the acquittal of Tamir Rice's killer...I will not condemn it. I understand the pain that leads to property destruction. I feel it, too!
