@@ -36,4 +36,4 @@ I believe in equality for women and men. I believe there are systemic barriers (
 
 To those of you who say you believe in equality but you refuse to call yourself feminist to avoid the stigma the title may bring, I ask you: have you abandoned science because some people think it goes against God? Letting the intransigence of others dictate your behavior is much less noble than you imagine and refusing to join the ranks of an important movement for semantic reasons is pathetically childish. Feminism is a good thing even if some feminists are bad at it.
 
-P.S. I will admit here that this post was almost titled , Feminist No More, but then I recognized the contradiction that would be created if I said I wasn’t a feminist but that I believed in equality for men and women. I don’t do contradictions. I implore you not do the same.
+P.S. I will admit here that this post was almost titled , Feminist No More, but then I recognized the contradiction that would be created if I said I wasn’t a feminist but that I believed in equality for men and women. I don’t do contradictions. I implore you to not do the same.
