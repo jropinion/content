@@ -4,7 +4,7 @@ Date: 2016/01/14
 
 Three percent of scientists don’t believe in climate change. That’s how this claim is often cached, but it’s more accurate to say that of all the scientific papers ever published that take a position on climate change, 3% do not admit or explicitly deny that human behavior contributes to the rising global temperatures and increased greenhouse gases in the environment. A mouth full, but for the sake of accuracy, I think the truth should be spoken instead of its expedient doppleganger.
 
-Much the same, some feminists, like those climate-change denying scientists, have lost their way. Either because of personal bias or bad information, some feminists have taken on positions that are completely untenable. Worst yet, some of these positions have grown legs, and by the day more and more people are buying into what I’ll call "popular feminism.”
+Much the same, some feminists, like those climate-change denying scientists, have lost their way. Either because of personal bias or bad information, some feminists have taken on positions that are completely untenable. Worst yet, some of these positions have grown legs, and by the day more and more people are buying into what I’ll call "popular feminism,”  as contrasted with academic feminism or critical feminist theory.
 
 This strand of feminism, not large enough to constitute a new wave (yet?), but too large to be ignored, has near completely rejected attempts at objective reasoning and has also resigned itself to understanding all matters exclusively from the female perspective. It is every bit as irrational as the sexism it looks to combat. But, why attack pop feminism in the abstract when we can examine the claims that are problematic?
 
