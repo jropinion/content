@@ -22,5 +22,5 @@ Second, we are afraid of sex. Sex is relegated to the internet and to late night
 
 Sex is awesome. Let’s start acting like it.
 
-P.S. I hope this post isn’t understood as claiming alcohol is the only factor leading to rape. As many theorists have argued and statistics and anecdotes show, rape has many dimensions as a social phenomenon, one of which being a show of power and dominance; and rape also stems in many cases from a belief in ownership or entitlement to the other’s body. I do, however, contend that alcohol exacerbates the problem and if we are to put this fire out, we shouldn’t pour alcohol on it.
 
+P.S. I hope this post isn’t understood as claiming alcohol is the only factor leading to rape. As many theorists have argued and statistics and anecdotes show, rape has many dimensions as a social phenomenon, one of which being a show of power and dominance; and rape also stems in many cases from a belief in ownership or entitlement to the other’s body. I do, however, contend that alcohol exacerbates the problem and if we are to put this fire out, we shouldn’t pour alcohol on it.
