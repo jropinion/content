@@ -2,7 +2,7 @@ Title: Too Smart To Be Racist
 Category: Race
 Date: 2016/02/18
 
-I write today from a place of frustration. In part because racism, what it is and how it works一how it has always worked一continues to escape the comprehension of the masses; in part because instances of this social failure to comprehend routinely manifest itself in bigoted sentiments and ignorant justifications of those sentiments. Recent events have provided an excellent opportunity to directly observe some of the most pernicious forms of racism’s apologism.
+I write today from a place of frustration. In part because racism, what it is and how it works一how it has always worked一continues to escape the comprehension of the masses; in part because instances of this social failure to comprehend routinely manifest themselves in bigoted sentiments and ignorant justifications of those sentiments. Recent events have provided an excellent opportunity to directly observe some of the most pernicious forms of racism’s apologism.
 
 But first some context.
 
