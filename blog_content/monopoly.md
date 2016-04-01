@@ -1,0 +1,23 @@
+Title: A Monopoly
+Category: Race
+Date: 2016/03/31
+
+After last week’s post, I realized that there was an assumption underlying the argument in the post that I had never made explicit, and that I further haven’t argued for in the past, and that’s the proposition that racism will continue unless we act.
+
+This may seem obvious to any who have subscribed to understandings of racism which posit the social phenomenon as an entrenched, institutional problem or some all encompassing force. But for those skeptical of racism having such a large impact or being that ubiquitous, asserting the inevitability of racism continuing *ad infinitum* without explaining why usually means ending conversation. It’s even possible that such a strong stance on racism’s inevitability may confirm the somewhat common hypothesis among conservatives that racism would end if minorities and liberals would let it.
+
+Indeed, Chief Justice, John Roberts reminds us of this seemingly obvious truism in the landmark affirmative action case *Parents Involved* (2007). In that case, Roberts observes, “The way to stop discrimination on the basis of race is to stop discriminating on the basis of race." Despite the poetry of this proposition, the idea expressed therein is not correct.
+
+Ironically, Roberts quote exists in the perfect context to demonstrate the problem believing racism will do away with itself represents. After all, it is in the above case that the Supreme Court forbids states from making racial classifications, even when those classifications are a part of a larger scheme of policy meant to ameliorate the disparate racial consequences of that history of racism I’m always talking; in this particular instance, that would be red-lining, racially restrictive covenants, and outright robbery and violence. All these policy created segregated communities which further produced huge disparities in the quality of schools. This is so because schools are funded, in large part, through property taxes.
+
+Though this is just one example, I believe it exist in the larger context of the consequences of private discrimination going unchecked because government actors refuse to live in the society we actually inhabit. Another example of this rampant private racism is hiring preferences. According to a study conducted by economists Marianne Bertrand and Sendhil Mullainathan, where the two responded to 1300 job postings using more than 5000 resumes. According to their findings, a resume with a black sounding name, but otherwise exactly the same, was 33% less likely to get called back.
+
+To those who would offer race-neutral explanations for the findings, the researchers concluded, in anticipatory fashion, “We find little evidence that our results are driven by employers inferring something other than race, such as social class, from the names..These results suggest that racial discrimination is *still* a prominent feature of the labor market." They say still because their study was done, in part, to revisit findings from a 2003 study, which, spoiler alert, held the the same thing. Both studies can be found on politifacts.com.
+
+These two studies are just drops in the bucket. They demonstrate something a lot more pervasive in the market than intuition might suggest for some. No amount of hard work can overpower racism’s monopoly on the job market. I use the term monopoly because that is something we have all agreed is a bad thing in the marketplace. Something so bad, in fact, that when we believe a company or individual is threatening to monopolize a market, we disregard our zealot-like adherence to market principles and allow the government to intervene.
+
+I wonder, might we apply the same logic when racism and other forms of bigotry have similar consequences as monopolies? Lower wages, inefficient allocation of resources, and all the other things bars to competition are said to cause; why are these no longer legitimate concerns when the victims are disproportionately black (though I’d think that racism makes us all lose)?
+
+The questions that remain: what kind of affirmative action? How much? For how long? To those things I say, there’s always next week.
+
+P.S. Or the week after that.
