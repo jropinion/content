@@ -2,7 +2,7 @@ Title: Other People’s Rights
 Category: Political Philosophy
 Date: 2016/01/21
 
-I have noticed for a very long time that people, in their advocacy for plans to improve society, are often willing to sacrifice other people’s rights in the hopes of forwarding their policy goals. This, I believe, is one of the largest blind spots on all sides of the social justice debate.
+I have noticed for a very long time that people, in their advocacy for plans to improve society, are often willing to sacrifice other people’s rights in the hopes of forwarding their policy goals. This, I believe, is one of the largest blindspots on all sides of the social justice debate.
 
 On the right, calls to bar all muslims from entering and reentering the country are motivated by a desire for greater security. So is the advocacy for increased surveillance of Mosques and of muslims in general. Same can be said of the support for policies like stop and frisk that obviously violate the rights of the people forced to undergo them; usually minorities. It’s also present in calls for mandatory minimum sentencing which cut into people’s due process rights. I would even say this disregard for other people’s rights is present in support for the prohibition of many narcotics.
 
