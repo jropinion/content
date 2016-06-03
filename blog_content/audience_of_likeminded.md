@@ -26,6 +26,6 @@ Well, as I’ve tried to consistently bring up: PEOPLE’S LIVES AND DIGNITY  AR
 
 Seriously, let’s stop avoiding those who disagree with us. The truth is, we’re not afraid they’ll say something bigoted. We’re afraid they’ll say we’re wrong, and that they’ll be right. And when you’ve built an identity and found purpose in a particular fight or cause, hearing you might be approaching it from an ineffective angle, or that there is no fight to fight at all, is very unsettling.
 
-But...isn’t that the point? Aren’t we trying to find the way to organize our thoughts and beliefs that leads to a more equitable society for all. Why would your own beliefs be exempt front that reorganization?
+But...isn’t that the point? Aren’t we trying to find the way to organize our thoughts and beliefs that leads to a more equitable society for all. Why would your own beliefs be exempt from that reorganization?
 
 P.S. They’re not! 
