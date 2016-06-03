@@ -14,7 +14,7 @@ Filtering out opposing views is making you stupid!
 
 Necessarily so, actually. Unless, of course, you believe you and your cyber-posse of 50 people have all the answers. If you can admit you guys don’t, then you should also be able to see how shielding yourself from other perspectives might lead to you having deeper and deeper convictions about more and more extreme ideas, your thoughts resembling reality less the deeper down the rabbithole you go.
 
-Moreover, that feeling that you're not being heard? Chances are, you're not. But, equally as importantly, you're not listening. As we filter away the other side, and even if we passively let the other side be filtered away for us, we are complicitly relinquish our seat at the table. And, if outcomes continue to go against what we'd hope for, we can partially blame ourselves for being too proud or too stubborn to participate in discourse because we'd rather be treated as heroes for boldly saying controversial opinions to the people most ready to hear them....those who already agree.
+Moreover, that feeling that you're not being heard? Chances are, you're not. But, equally as importantly, you're not listening. As we filter away the other side, and even if we passively let the other side be filtered away for us, we are complicitly relinquishing our seat at the table. And, if outcomes continue to go against what we'd hope for, we can partially blame ourselves for being too proud or too stubborn to participate in discourse because we'd rather be treated as heroes for boldly saying controversial opinions to the people most ready to hear them....those who already agree.
 
  I’m realizing more and more that both liberals and conservatives, and everyone else, think they have the right normative values. But, fortunately, normative values (even those ascertained through religious belief) are so diverse as to make it impossible to not be constantly challenged on that frontier. Information and perspective, on the other hand, can be filtered, expanded or constricted, altered and exaggerated or simply misstated. And if all one’s information is coming from the same kinds of sources, then there is nothing to correct for that filtering, exaggeration, etc.
 
@@ -26,6 +26,6 @@ Well, as I’ve tried to consistently bring up: PEOPLE’S LIVES AND DIGNITY  AR
 
 Seriously, let’s stop avoiding those who disagree with us. The truth is, we’re not afraid they’ll say something bigoted. We’re afraid they’ll say we’re wrong, and that they’ll be right. And when you’ve built an identity and found purpose in a particular fight or cause, hearing you might be approaching it from an ineffective angle, or that there is no fight to fight at all, is very unsettling.
 
-But...isn’t that the point? Aren’t we trying to find the way to organize our thoughts and beliefs that leads to a more equitable society for all. Why would your own beliefs be immune from that reorganization?
+But...isn’t that the point? Aren’t we trying to find the way to organize our thoughts and beliefs that leads to a more equitable society for all. Why would your own beliefs be exempt front that reorganization?
 
 P.S. They’re not! 
