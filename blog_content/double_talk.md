@@ -1,4 +1,4 @@
-Tilte: Racist Double Talk
+Title: Racist Double Talk
 Category: Race
 Date: 2016/06/09
 
