@@ -20,7 +20,7 @@ But of course, it didn’t stay that way. Soon after the casualty count was fina
 
 Still, even in this peripheral argument, there was very little balance across perspectives balance. And, more importantly, the atrocity in Orlando was again reduced to no more than a vehicle for the agenda of the speaker, independent of which perspective was being voiced.
 
-Therein lies my grievance with the rhetoric surrounding this whole ordeal: many people aren’t trying to explain what happened in Orlando to prevent in from happening elsewhere, instead, it would appear that the true goal is to show how Orlando proves they were right all along. Granted, this is a cynical thought, but I don’t think it’s that off base.
+Therein lies my grievance with the rhetoric surrounding this whole ordeal: many people aren’t trying to explain what happened in Orlando to prevent it from happening elsewhere, instead, it would appear that the true goal is to show how Orlando proves they were right all along. Granted, this is a cynical thought, but I don’t think it’s that off base.
 
 After all, truly getting to the root causes of an event with as many variables and factors as Orlando is hard to do. And yet, untrained in psychology, unfamiliar with Islam, unacquainted with the substance of actual gun laws, and unwilling to move beyond blatant mischaracterizations of competing opinions, any person with a voice saw fit to put the events in Orlando into a box, and not just any box. Boxes were chosen based on how well they displayed the factors in Orlando the speaker thought was important, the box of course having no room for the factors in Orlando that might undercut the presented narrative.
 
