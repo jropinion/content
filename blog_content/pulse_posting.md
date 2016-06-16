@@ -29,54 +29,104 @@ For example, for those who thought the Christian Right should be blamed for fost
 Now, I know compassion, concern, anger, grief, frustration and many other emotions surround this latest shooting. I understand that the desire to make terrorist attacks, hate crimes, and mass shootings things of the pass. But we have to recognize that insisting one narrative holds all the answers is not how progress is made. Being unwilling to acknowledge our biases and blindspots directly contributes to the collective ignorance that allows the criminally insane and the morally bankrupt to exact harm on our fellow humans. Too strong an attachment to anything, be it guns, tolerance, or irrational hate, is going to continue to inhibit progress.
 
 If your conduct suggests the deaths in Orlando were little more to you than a new opportunity to dust off your favorite political, social, or other such arguments for how our society should look or change going forward, then the only difference between you and the Orlando shooter is you didn’t pull the trigger.
+
 P.S. RIP
- Akyra Monet Murray, 18
- Alejandro Barrios Martinez, 21
- Amanda Alvear, 25 
- Mercedez Marisol Flores, 26
- Angel L. Candelario-Padro, 28
- Anthony Luis Laureano Disla, 25
- Antonio Davon Brown, 29
- Brenda Lee Marquez McCool, 49
- Christopher Joseph Sanfeliz, 24
- Cory James Connell, 21
- Darryl "DJ" Roman Burt II, 29
- Deonka Deidra Drayton, 32
- Eddie Jamoldroy Justice, 30
- Edward Sotomayor Jr., 34
- Enrique L. Rios, Jr, 25
- Eric Ivan Ortiz Rivera, 36
- Frank Hernandez , 27
- Franky Jimmy Dejesus Velazquez, 50
- Geraldo A. "Drake" Ortiz-Jimenez, 25
- Gilberto Ramon Silva Menendez, 25
- Jason Benjamin Josaphat, 19
- Javier Jorge-Reyes, 40
- Jean C. Nieves Rodriguez, 27
- Jean Carlos Mendez Perez, 35
- Jerald Arthur Wright, 31
- Joel Rayon Paniagua, 32
- Jonathan Antonio Camuy Vega, 24
- Juan Chevez-Martinez, 25
- Juan Pablo Rivera Velazquez, 37
- Juan Ramon Guerrero, 22 
- Christopher Andrew Leinonen, 32
- Kimberly Morris, 37
- Leroy Valentin Fernandez, 25
- Luis Daniel Conde , 39
- Luis Daniel Wilson-Leon, 37
- Luis Omar Ocasio-Capo, 20
- Luis S. Vielma, 22
- Martin Benitez Torres, 33
- Miguel Angel Honorato, 30
- Oscar A. Aracena-Montero, 26
- Simon Adrian Carrillo Fernandez, 31
- Paul Terrell Henry , 41
- Peter O. Gonzalez-Cruz, 22
- Rodolfo Ayala-Ayala, 33
- Shane Evan Tomlinson, 33
- Stanley Almodovar III, 23
- Tevin Eugene Crosby, 25
- Xavier Emmanuel Serrano Rosado, 35
- Yilmary Rodriguez Solivan, 24
+ 
+ Akyra Monet Murray, 18 
+ 
+ Alejandro Barrios Martinez, 21 
+ 
+ Amanda Alvear, 25  
+ 
+ Mercedez Marisol Flores, 26 
+ 
+ Angel L. Candelario-Padro, 28 
+ 
+ Anthony Luis Laureano Disla, 25 
+ 
+ Antonio Davon Brown, 29 
+ 
+ Brenda Lee Marquez McCool, 49 
+ 
+ Christopher Joseph Sanfeliz, 24 
+ 
+ Cory James Connell, 21 
+ 
+ Darryl "DJ" Roman Burt II, 29 
+ 
+ Deonka Deidra Drayton, 32 
+ 
+ Eddie Jamoldroy Justice, 30 
+ 
+ Edward Sotomayor Jr., 34 
+ 
+ Enrique L. Rios, Jr, 25 
+ 
+ Eric Ivan Ortiz Rivera, 36 
+ 
+ Frank Hernandez , 27 
+ 
+ Franky Jimmy Dejesus Velazquez, 50 
+ 
+ Geraldo A. "Drake" Ortiz-Jimenez, 25 
+ 
+ Gilberto Ramon Silva Menendez, 25 
+ 
+ Jason Benjamin Josaphat, 19 
+ 
+ Javier Jorge-Reyes, 40 
+ 
+ Jean C. Nieves Rodriguez, 27 
+ 
+ Jean Carlos Mendez Perez, 35 
+ 
+ Jerald Arthur Wright, 31 
+ 
+ Joel Rayon Paniagua, 32 
+ 
+ Jonathan Antonio Camuy Vega, 24 
+ 
+ Juan Chevez-Martinez, 25 
+ 
+ Juan Pablo Rivera Velazquez, 37 
+ 
+ Juan Ramon Guerrero, 22  
+ 
+ Christopher Andrew Leinonen, 32 
+ 
+ Kimberly Morris, 37 
+ 
+ Leroy Valentin Fernandez, 25 
+ 
+ Luis Daniel Conde , 39 
+ 
+ Luis Daniel Wilson-Leon, 37 
+ 
+ Luis Omar Ocasio-Capo, 20 
+ 
+ Luis S. Vielma, 22 
+ 
+ Martin Benitez Torres, 33 
+ 
+ Miguel Angel Honorato, 30 
+ 
+ Oscar A. Aracena-Montero, 26 
+ 
+ Simon Adrian Carrillo Fernandez, 31 
+ 
+ Paul Terrell Henry , 41 
+ 
+ Peter O. Gonzalez-Cruz, 22 
+ 
+ Rodolfo Ayala-Ayala, 33 
+ 
+ Shane Evan Tomlinson, 33 
+ 
+ Stanley Almodovar III, 23 
+ 
+ Tevin Eugene Crosby, 25 
+ 
+ Xavier Emmanuel Serrano Rosado, 35 
+ 
+ Yilmary Rodriguez Solivan, 24 
 
