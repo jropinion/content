@@ -1,0 +1,19 @@
+Title: Blue Lives Matter Bills
+Category: Social Justice
+Date: 2016/08/11
+
+Police deaths in Baton Rouge, Dallas, and other cities around the country have convinced many people that their is a war on cops. Hoping to curtail this supposed trend toward greater cop casualties, Louisiana, and several others states and localities, have passed or begun debating “Blue Lives Matter” bills which would make assaulting an officer a hate crime.
+
+According to the Officer Down Memorial Page (odmp.org), 73 police officers have died in 2016. That marks a 1% decrease in police fatalities compared to last year. This is a figure many are quick to cite to show there is in fact no war on police. On the other hand, police deaths by gunfire this year, 35 to date, are up by 85%. Even when you account for the few that were accidental shootings, it still leaves a sharp rise in cops killed by gunfire. And with spates of killings in June and July (30 across the two months), the narrative that cops are under attack can be very convincing.
+
+I believe, however, that narrative is deeply mistaken. For starters, the proliferation of guns in America society suggest that if their were indeed a war on cops, the death tolls would be higher than 73 (with 35 by gunfire). Moreover, one might expect this war on police to have drummed up more concern from the masses beyond conservative echo-chambers. But it has not.
+
+Admittedly, police are very unpopular right now. A Gallup poll from July found that confidence in Police is down to a 22 year low at 52%. However the highest that figure has been was 64% in 2003, and the number was only 57% last year. Now, I can’t be sure, but I do think the decrease in popularity may be less the product of arbitrary hate deployed at cops, and more the startling observation many Americans are making: the police have become too aggressive and oppressive, especially in their interactions with the poor, minorities, and the mentally handicap.
+
+But there’s also a deeper concern. It will be interesting to see how Blue Lives Matter Laws will be actually function. How is one to know that a violent act was done to a cop as a cop, as opposed to being arbitrary? Will the law just add as further protection for cops? I ask these because like with most laws, especially those pertaining to policing, enhanced sentencing, and the like, I worry about disproportionately in prosecution of these new hate crimes against the poor and minorities, the two groups routinely in hostile encounters with the police. 
+
+I think my concerns are best illustrated by the charge “resisting arrest.” Theoretically, the need to disincentive struggle at the point of arrest is obvious. But in practice, most recently best demonstrated in the incidents preceding Sandra Bland’s death, when the cop, after forcibly removing her from her car and forcing her to the ground is caught on tape saying he’ll probably just get her on resisting arrest. That was the charge? What the hell was she being arrested for to resist? Obviously the abuse of blue lives matter statutes would not take this form, but the opportunity to use these statutes as just another treat to coerce small time offenders into bad pleas cannot be ignored. I don’t know how this will turn out, but I suspect we should keep our eyes on jurisdictions passing these laws.
+
+The cops have killed 1,502 people since January 1st of 2015. If this war people are talking is happening, they are winning and do not need protections such as these.
+
+P.S. Please do not misread this post as unconcerned with officer deaths. I definitely think the men and women who suit up to protect the streets deserve deference and respect. But that does not, in my opinion, entitle them to enhance protections to combat imagined problems. Especially when the potential for abuse is so high.  
