@@ -1,4 +1,4 @@
-Title: Alcohol and Sex
+Title: Alcohol & Sex
 Category: Feminism
 Date: 2015/05/14
 
