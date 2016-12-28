@@ -1,3 +1,3 @@
 # Contents
 
-Raw markup for posts on Juannell Riley's blog.
+Raw markdown for posts on Juannell Riley's blog.
