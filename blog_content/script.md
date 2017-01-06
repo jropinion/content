@@ -1,5 +1,5 @@
 Title: The Script
-Date: 17/01/05
+Date: 2017/01/05
 Category: Social Justice
 
 The world sucks! Things for group A are terrible and the primary reason is group B. Group A faces routine and predictable denials of fairness; their pain ignored or forgotten, their transgressions recorded and amplified. Group B, on the other hand, receives special treatment. It’s stunning how people seem completely blind or unconcerned with group B’s continual iniquities. It’s most shocking when you compare how people treat group B with how people treat group A. There are so many rules for group A’s conduct and so many standards by which they are judged. But, no one ever applies those standards to group B. Group B gets free reign to do all kinds of bad stuff with impunity while group A is held accountable for any mistake by any member. Group A people are never treated as individuals, and social forces keep this rigid, unfair system in place. Demolishing this social order requires a few things.
