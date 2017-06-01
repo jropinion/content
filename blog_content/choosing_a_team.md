@@ -4,7 +4,7 @@ Date: 2017/06/01
  
 George Washington, in his Farewell Address after his second term as President, famously warned that though “[political parties] may now and then answer popular ends, they are likely in the course of time and things, to become potent engines, by which cunning, ambitious, and unprincipled men will be enabled to subvert the power of the people and to usurp for themselves the reins of government, destroying afterwards the very engines which have lifted them to unjust dominion.”
  
-Is that not where we find ourselves today? How foolish do Republicans look falling in line to defend and support one of history's most incompetent elected officials? Why? Because he, too is a Republican.
+Is that not where we find ourselves today? How foolish do Republicans look falling in line to defend and support one of history's most incompetent elected officials? And why? Because he, too is a Republican.
  
 And, while Donald Trump represents the most palpable example of Washington’s point, even without Trump, our gridlocked Congress, corrupt politicians, and divided society all illustrate why Washington was right about the potential dangers of political parties.
  
